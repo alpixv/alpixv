@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Wassup im Alpi:
 Hi, I’m Alp Arslan Begenjov, a Diploma in Information Technology student at Sunway University, Malaysia. I am currently in my final year of the program and preparing for my upcoming internship. After completing my diploma, I plan to continue my studies at Sunway University and pursue my bachelor’s degree.<br><br>I am passionate about technology, eager to expand my skills, and looking forward to gaining practical experience through my internship and future academic journey.
 
 
